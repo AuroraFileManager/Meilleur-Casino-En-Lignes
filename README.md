@@ -7,25 +7,25 @@ Bienvenue sur le comparatif des **meilleurs casinos en ligne en 2025**. Découvr
 ## 🔝 Top Casinos Partenaires
 
 ### [🎲 Gamdom](https://gamdom.com/r/bibil)
-![Gamdom Logo](https://nostrabet.com/static/images/logos/transparent/gamdom.png)
+(https://nostrabet.com/static/images/logos/transparent/gamdom.png)
 > Plateforme réputée avec des jeux variés et un programme de récompenses unique.
 
 ---
 
 ### [🃏 Shuffle](https://shuffle.com?r=nARp9sWAZr)
-![Shuffle Logo](![image](https://github.com/user-attachments/assets/2bb12564-9d8a-4aec-b086-649f2b6dc0fe)
+(https://jeux.ca/content/cms-images/37786dc6e98f5b019a7527c4546deef6265eaafb-600x240.png)
 > Interface moderne, expérience fluide, et bonus compétitifs.
 
 ---
 
 ### [🪙 Stake](https://stake.bet/?c=QXhFtsVf)
-![Stake Logo](https://upload.wikimedia.org/wikipedia/commons/6/6c/Stake_logo.svg)
+(https://upload.wikimedia.org/wikipedia/commons/6/6c/Stake_logo.svg)
 > Leader du jeu crypto avec promotions régulières et jeux de haute qualité.
 
 ---
 
 ### [💰 Betplay](https://betplay.io?ref=c53638b776f4)
-![Betplay Logo](https://d1u7v89j1acxgy.cloudfront.net/190_x_49_Betplay_logo_04072024_white_logo_1_0c803fa1a7.png)
+(https://d1u7v89j1acxgy.cloudfront.net/190_x_49_Betplay_logo_04072024_white_logo_1_0c803fa1a7.png)
 > Jeu sécurisé avec de nombreux moyens de paiement modernes.
 
 ---
