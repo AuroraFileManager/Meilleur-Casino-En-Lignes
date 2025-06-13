@@ -13,7 +13,7 @@ Bienvenue sur le comparatif des **meilleurs casinos en ligne en 2025**. Découvr
 ---
 
 ### [🃏 Shuffle](https://shuffle.com?r=nARp9sWAZr)
-![Shuffle Logo](https://jeux.ca/content/cms-images/37786dc6e98f5b019a7527c4546deef6265eaafb-600x240.png)
+![Shuffle Logo](![image](https://github.com/user-attachments/assets/2bb12564-9d8a-4aec-b086-649f2b6dc0fe)
 > Interface moderne, expérience fluide, et bonus compétitifs.
 
 ---
